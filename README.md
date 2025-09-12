@@ -1,4 +1,3 @@
-![d2xjby8-22aabbb5-bb70-453b-8b5b-7b34b5167263](https://github.com/user-attachments/assets/3bd03397-2f60-4e42-918d-4dd7fb5f9815)
 ![ezgif com-crop 6](https://github.com/user-attachments/assets/78627f35-2657-44a3-b334-469203ef9240)
 ![ezgif com-crop 8](https://github.com/user-attachments/assets/1759742b-28b0-473e-b484-c86005440bc8)
 ![ezgif com-crop 9](https://github.com/user-attachments/assets/973615e7-34e0-43c3-bdbe-9134d04b5cda)
@@ -10,7 +9,6 @@
 ![ezgif com-crop 7](https://github.com/user-attachments/assets/9840afe2-7f30-4753-bc5c-9bfb81feb64d)
 ![ezgif com-crop 2](https://github.com/user-attachments/assets/901aa7da-419a-4851-a49f-7aae044e0fdb)
 ![ezgif com-crop 4](https://github.com/user-attachments/assets/7c878b35-37fc-4388-b445-6aab1c4cd4b6)
-![IMG_6062-ezgif com-crop](https://github.com/user-attachments/assets/75fae5e0-d041-4c9c-b22c-04b5b07bf8b3)
 ![ezgif com-crop 16](https://github.com/user-attachments/assets/94c727f7-16a4-4d2b-b44e-afdc02eeb995)
 ![ezgif com-crop 15](https://github.com/user-attachments/assets/af27506b-9aa1-4aec-a464-795a3cda2172)
 ![ezgif com-crop 19](https://github.com/user-attachments/assets/0f2b8f26-59e1-4630-a2ca-61831efbb52a)

@@ -37,6 +37,4 @@
 ![IMG_6063-ezgif com-crop](https://github.com/user-attachments/assets/e65e62c9-b162-4051-8c2d-1afd5f834e2d)
 ![IMG_6065-ezgif com-crop](https://github.com/user-attachments/assets/26748c47-ecb3-4b19-b699-357714dbee53)
 ![ezgif com-crop 17](https://github.com/user-attachments/assets/5713215e-58c3-4a9b-b76c-712212d5ff8c)
-![ezgif com-crop](https://github.com/user-attachments/assets/f8d3358d-23ae-4b23-91bf-f00da6ddcff3)
-
 

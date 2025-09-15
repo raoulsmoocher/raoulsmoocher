@@ -65,10 +65,7 @@
 <img width="99" height="55" alt="tumblr_609c12f10babc83b2f53ada3315d160d_8e801e36_100" src="https://github.com/user-attachments/assets/6fe4e22e-3c78-4642-9ab8-0c112596b0b1" />
 ![silent_hill_stamp_by_otakulottie_d1227r1-fullview](https://github.com/user-attachments/assets/ff2bc0f9-304f-4f06-a477-8e864bf522b3)
 <img width="99" height="55" alt="tumblr_0515451e06fc93b30675667fd567b9cd_69a02a00_100" src="https://github.com/user-attachments/assets/72e55e1b-f680-4e94-a6b8-e4db3fb2e40c" />
-<img width="99" height="56" alt="d5miljk-b74a8984-9c11-4e26-a7eb-e654f4cf8131" src="https://github.com/user-attachments/assets/36cc2c70-760d-4b13-ad2f-30187d0f1c74" />
-![dce9tp8-75e4a650-0bb0-431f-bc06-4fa139ffeab8](https://github.com/user-attachments/assets/4babdc4d-b29d-4a09-ab88-580b24716dc7)
-![dce9tpb-f6e1a0ba-5b29-4947-a3a1-45cfa30c36fd](https://github.com/user-attachments/assets/40e9329c-3627-40a1-9218-00ab6491cf94)
-<img width="99" height="56" alt="dce9tpw-ef7635c6-7c1f-4bb4-947d-139191cf23d3" src="https://github.com/user-attachments/assets/4f7d306d-839d-40f3-808b-91c6f93459a2" />
-![dce9tp6-b00b0214-06c0-45d2-a976-c70bb8a1d977](https://github.com/user-attachments/assets/72145f9e-a72c-4a04-ab93-6527c80b4b8d)![dcecrhf-364bf928-7f77-40e2-a73e-c9ec6667d563](https://github.com/user-attachments/assets/3ab0c63f-a08f-4e08-b7cd-82c6acdb285a)
+<img width="99" height="56" alt="d5miljk-b74a8984-9c11-4e26-a7eb-e654f4cf8131" src="https://github.com/user-attachments/assets/36cc2c70-760d-4b13-ad2f-30187d0f1c74" />![dce9tp8-75e4a650-0bb0-431f-bc06-4fa139ffeab8](https://github.com/user-attachments/assets/4babdc4d-b29d-4a09-ab88-580b24716dc7)![dce9tpb-f6e1a0ba-5b29-4947-a3a1-45cfa30c36fd](https://github.com/user-attachments/assets/40e9329c-3627-40a1-9218-00ab6491cf94)
+<img width="99" height="56" alt="dce9tpw-ef7635c6-7c1f-4bb4-947d-139191cf23d3" src="https://github.com/user-attachments/assets/4f7d306d-839d-40f3-808b-91c6f93459a2" />![dce9tp6-b00b0214-06c0-45d2-a976-c70bb8a1d977](https://github.com/user-attachments/assets/72145f9e-a72c-4a04-ab93-6527c80b4b8d)![dcecrhf-364bf928-7f77-40e2-a73e-c9ec6667d563](https://github.com/user-attachments/assets/3ab0c63f-a08f-4e08-b7cd-82c6acdb285a)
 
 

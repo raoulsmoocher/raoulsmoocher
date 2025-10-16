@@ -1,7 +1,6 @@
 WIP!!!
 
-[
-](https://open.spotify.com/track/7o3DV1szMH5Fd38f1QwgPO?si=d65382026a4342a6)
+
 
 ![ezgif com-crop 6](https://github.com/user-attachments/assets/78627f35-2657-44a3-b334-469203ef9240)
 ![ezgif com-crop 8](https://github.com/user-attachments/assets/1759742b-28b0-473e-b484-c86005440bc8)

@@ -119,10 +119,10 @@ outlast ^
 <img width="99" height="56" alt="tumblr_pbjlg5AUEY1xz2nuuo2_100" src="https://github.com/user-attachments/assets/d6408fb3-4a55-41ff-aa19-0d91ba4d919f" />
 <img width="99" height="56" alt="Luka-chan-Stamp-by-aristodemelugix" src="https://github.com/user-attachments/assets/0a7c5164-7359-4be6-8961-04eedd94b1c0" />
 ![d5ixc1x-9f1a8379-0544-46b6-8fee-5e57251e0f8e](https://github.com/user-attachments/assets/1344efca-6906-4c4d-9d76-5ff7154941e8)
-<img width="99" height="56" alt="tumblr_e3bbbb63c8c8aae3f9b79908a6734a86_5a7ea7c5_100" src="https://github.com/user-attachments/assets/f33245d3-8046-412f-874c-bb28b82f82eb" />
-<img width="99" height="56" alt="tumblr_effdbe7ee77308f2d5aabd2cecdfb98a_607f002c_100" src="https://github.com/user-attachments/assets/9eeab588-30ae-4095-af4f-6b0c843fad9b" />
-<img width="99" height="56" alt="tumblr_793e874b5bfadde99cce0b907d45846b_5ef8b853_100" src="https://github.com/user-attachments/assets/9ee2a5db-82ce-492c-8594-7689be704cfd" />
-<img width="99" height="56" alt="tumblr_562e465c761d91e36a923229e7564a65_e3dd5d07_100" src="https://github.com/user-attachments/assets/0f282a15-6404-42a7-87f9-e0ff4ba45d45" />
+<img width="99" height="56" alt="tumblr_5b1e9acac0faa18bcb37893068a5e25c_09e36fcf_100" src="https://github.com/user-attachments/assets/c882f5de-ec97-4d34-919b-5289cb50837f" />
+<img width="99" height="56" alt="tumblr_39a6bfa64bc7827cd98cdaa3a3352da3_c865033e_100" src="https://github.com/user-attachments/assets/ff60b451-bee5-448a-967f-50c755e9d95a" />
+<img width="99" height="56" alt="tumblr_03c9adad3758485bd632ba330cfe1112_e01defaa_100" src="https://github.com/user-attachments/assets/0b6c7b55-426a-4c34-b59d-830248a8168b" />
+<img width="99" height="56" alt="tumblr_c4313e70bf3d56b8f8ce17313624e6a0_463f74c7_100" src="https://github.com/user-attachments/assets/cb39e493-33e4-4262-b7a4-eaf7607bd520" />
 
 
 

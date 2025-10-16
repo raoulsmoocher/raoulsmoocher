@@ -113,15 +113,16 @@ outlast ^
 ![tumblr_5f8c9a07af211bb571c9346190522015_653628b7_100](https://github.com/user-attachments/assets/302b49b7-cb91-4d06-980d-d48f496889e7)
 <img width="101" height="57" alt="tumblr_e504abd1e8d464bc6f8ba20b410a9850_497c4531_250" src="https://github.com/user-attachments/assets/5a1923fa-ae5b-4d6a-a09d-b998222d6a20" />
 <img width="97" height="57" alt="tumblr_a6da67b9fb056587ef72f8e4646d1c62_bdf38776_100" src="https://github.com/user-attachments/assets/387977ae-1024-471f-b102-adbd411c8894" />
-<img width="101" height="57" alt="Tumblr-l-522714537253358" src="https://github.com/user-attachments/assets/2cbe167f-2082-421f-94d9-e3626770206d" />
 <img width="99" height="56" alt="f79c9aa8" src="https://github.com/user-attachments/assets/7a42f98b-ddc2-4696-927b-7b55d64b9f9d" />
 <img width="99" height="56" alt="5836179e" src="https://github.com/user-attachments/assets/898b4c2f-768e-424b-a38e-4b0443bad9b1" />
 <img width="99" height="56" alt="tumblr-pcq4e5vb-Hw1xbgu08o1-100" src="https://github.com/user-attachments/assets/41a56858-3c5c-45a2-9453-91c1479d7547" />
 <img width="99" height="56" alt="tumblr_pbjlg5AUEY1xz2nuuo2_100" src="https://github.com/user-attachments/assets/d6408fb3-4a55-41ff-aa19-0d91ba4d919f" />
 <img width="99" height="56" alt="Luka-chan-Stamp-by-aristodemelugix" src="https://github.com/user-attachments/assets/0a7c5164-7359-4be6-8961-04eedd94b1c0" />
 ![d5ixc1x-9f1a8379-0544-46b6-8fee-5e57251e0f8e](https://github.com/user-attachments/assets/1344efca-6906-4c4d-9d76-5ff7154941e8)
-![tumblr_4984c889e02fbef021f7f12b219960f4_e696dd8c_100](https://github.com/user-attachments/assets/9b06d1e3-bc1a-45c5-a3da-c685c8588144)
-
+<img width="99" height="56" alt="tumblr_e3bbbb63c8c8aae3f9b79908a6734a86_5a7ea7c5_100" src="https://github.com/user-attachments/assets/f33245d3-8046-412f-874c-bb28b82f82eb" />
+<img width="99" height="56" alt="tumblr_effdbe7ee77308f2d5aabd2cecdfb98a_607f002c_100" src="https://github.com/user-attachments/assets/9eeab588-30ae-4095-af4f-6b0c843fad9b" />
+<img width="99" height="56" alt="tumblr_793e874b5bfadde99cce0b907d45846b_5ef8b853_100" src="https://github.com/user-attachments/assets/9ee2a5db-82ce-492c-8594-7689be704cfd" />
+<img width="99" height="56" alt="tumblr_562e465c761d91e36a923229e7564a65_e3dd5d07_100" src="https://github.com/user-attachments/assets/0f282a15-6404-42a7-87f9-e0ff4ba45d45" />
 
 
 

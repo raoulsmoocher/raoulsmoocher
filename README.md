@@ -66,7 +66,6 @@ outlast ^
 
 <img width="99" height="56" alt="d2wste3-9f58d88f-3ecf-4517-8435-2edf8d59f9be" src="https://github.com/user-attachments/assets/5b2d72e3-3428-4231-9c0b-ae7a9b6eabdc" />   ![Image](https://github.com/user-attachments/assets/77dec6ab-0560-425e-87a4-fb4162fbbd9f)
 ![Image](https://github.com/user-attachments/assets/0bca4b92-fb30-4266-bf12-e1c15821977d)
-![Image](https://github.com/user-attachments/assets/3747fd90-2d72-41c3-8a03-a11816476af1)
 ![Image](https://github.com/user-attachments/assets/bfbc01ae-2482-4ac2-8b6b-0e32747f2981)
 ![d3a86tc-cebe7676-619a-429c-957e-6113c5c3a34b](https://github.com/user-attachments/assets/50f21e30-38b6-4eda-96c2-a2944c7ea44c)![d2g3him-edc1bc82-c902-4f25-a74d-c05db0035088](https://github.com/user-attachments/assets/db4a5277-d901-49d5-b0b4-ed39e1a19c3f)![d2kawa8-6bf1e9ef-2a47-4abf-9472-36741b7ed55e](https://github.com/user-attachments/assets/ce414f81-33d9-449c-92b9-67de441ca914)![d2o0of4-3ea75926-cc41-469b-bee6-79d533c072b9](https://github.com/user-attachments/assets/b156d5c0-ff33-4bfa-b1e1-9aafc1448cd9)![d8qqydg-7b7e0d2a-9cc5-4893-9f6f-523de2485100](https://github.com/user-attachments/assets/df1d6f34-7446-4a14-b555-8246e58b07a2)
 <img width="99" height="56" alt="d5milja-37d949bf-5156-4ed0-aa4e-f123e839f77a" src="https://github.com/user-attachments/assets/620d80ce-6283-4fcb-8cb3-f4d17a287c72" />

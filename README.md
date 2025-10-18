@@ -155,7 +155,6 @@ outlast ^
 <img width="99" height="56" alt="ezgif-803a91746bea06" src="https://github.com/user-attachments/assets/47ce2f47-ffa2-401a-8689-bd6a15100e50" />
 ![tumblr_57018d82974ddc3d1c78137e52501060_3e9f9c49_250-ezgif com-resize](https://github.com/user-attachments/assets/ecc9c32d-4cee-4b02-860b-987ba6f67b5b)
 <img width="99" height="56" alt="ezgif-89409e8ed32e4f" src="https://github.com/user-attachments/assets/d353dc23-e1e9-4df2-9dcb-7c7d30d0efb6" />
-<img width="99" height="56" alt="tumblr_825ad22f8ed8e360b884518c5d616b42_8a805be5_100" src="https://github.com/user-attachments/assets/13606eca-0159-4250-8ce1-23f6fc81e095" />
 <img width="99" height="56" alt="tumblr_825ad22f8ed8e360b884518c5d616b42_8a805be5_100" src="https://github.com/user-attachments/assets/89dcec01-f8bd-43c7-91a7-405ba9885ae5" />
 <img width="99" height="56" alt="tumblr_e59da0f8238dba8acf8fddcc29f045f6_293f5845_100" src="https://github.com/user-attachments/assets/ede6df59-a549-4d8b-a547-55b0ce8a47bc" />
 <img width="99" height="56" alt="tumblr_ecff5e4a8187b0fbb12e78ab6acec471_bf5b13f1_100" src="https://github.com/user-attachments/assets/a2dc178c-e2cd-41c1-843e-18196c7fb705" />

@@ -143,6 +143,9 @@ outlast ^
 ![tumblr_14b9f53a8e8ac6bb681a3cb0b81c2659_40f01c54_100](https://github.com/user-attachments/assets/a618d650-5b59-47aa-8b88-68d9a582134a)
 <img width="101" height="58" alt="ddfuxvb-c82458ab-eec5-4ec4-8db9-fc084540e71c" src="https://github.com/user-attachments/assets/cf960b34-b8e3-4765-a0f6-57a706c2327f" />
 
+<img width="1920" height="59" alt="image" src="https://github.com/user-attachments/assets/313afe45-2629-4aab-9470-1ee506fbbecd" />
+
+
 ![tumblr_e6c618a17cd4f8981511ae2cd9f0ac93_9b5e4b14_250-ezgif com-resize](https://github.com/user-attachments/assets/c82c9117-fb1d-45d4-a1fa-e1526e2f7284)
 <img width="99" height="56" alt="ezgif-8a3cc23457120e" src="https://github.com/user-attachments/assets/af83d2ff-1ea9-4961-887c-e4359be7b535" />
 ![tumblr_d6f6a76da963ff70e76302fc93bb6689_cd50b2a8_250-ezgif com-resize](https://github.com/user-attachments/assets/eae5d707-7d08-43c6-b0a9-280ce0cc8d71)
@@ -159,6 +162,5 @@ outlast ^
 
 
 
-<img width="1920" height="59" alt="image" src="https://github.com/user-attachments/assets/313afe45-2629-4aab-9470-1ee506fbbecd" />
 
 interests^

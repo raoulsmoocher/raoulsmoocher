@@ -42,7 +42,6 @@ WIP!!!
 ![ezgif com-crop](https://github.com/user-attachments/assets/d965f6c5-3c35-4f0c-be61-ba5fc846e373)
 <img width="3000" height="16" alt="image" src="https://github.com/user-attachments/assets/8e5967af-c15e-468d-afcc-00ca97f82f02" />
 
-poto ^
 
 ![IMG_6201](https://github.com/user-attachments/assets/9bb4435a-e34e-4cbb-ac13-4b45179a7b6f)
 ![IMG_6199](https://github.com/user-attachments/assets/3e257eb1-7a3d-40be-87a4-7ac85a8a671e)
@@ -62,7 +61,6 @@ poto ^
    ![dbg8dej-b03a0316-2403-4f1e-8217-5699a406fca4](https://github.com/user-attachments/assets/2e753df9-c38f-40ea-9182-4183f39485aa) 
 ![ezgif-3a101d0cbc284b](https://github.com/user-attachments/assets/d1b7a08b-9fdb-49e9-9537-d7616d1d73b2)
 
-outlast ^
 
 <img width="99" height="56" alt="d2wste3-9f58d88f-3ecf-4517-8435-2edf8d59f9be" src="https://github.com/user-attachments/assets/5b2d72e3-3428-4231-9c0b-ae7a9b6eabdc" />   ![Image](https://github.com/user-attachments/assets/77dec6ab-0560-425e-87a4-fb4162fbbd9f)
 ![Image](https://github.com/user-attachments/assets/0bca4b92-fb30-4266-bf12-e1c15821977d)
@@ -147,6 +145,14 @@ outlast ^
 
 
 
+
+
+
+
+
+
+
+
 ![tumblr_e6c618a17cd4f8981511ae2cd9f0ac93_9b5e4b14_250-ezgif com-resize](https://github.com/user-attachments/assets/c82c9117-fb1d-45d4-a1fa-e1526e2f7284)
 <img width="99" height="56" alt="ezgif-8a3cc23457120e" src="https://github.com/user-attachments/assets/af83d2ff-1ea9-4961-887c-e4359be7b535" />
 ![tumblr_d6f6a76da963ff70e76302fc93bb6689_cd50b2a8_250-ezgif com-resize](https://github.com/user-attachments/assets/eae5d707-7d08-43c6-b0a9-280ce0cc8d71)
@@ -187,12 +193,8 @@ outlast ^
 <img width="99" height="56" alt="tumblr_96fedb1303af36d2021f100c6581cc16_9d5ee54e_100" src="https://github.com/user-attachments/assets/ac9a9c61-9f9a-4dee-bd1b-83420faa9629" />
 <img width="99" height="56" alt="ezgif-89a2d4dcf89ac1" src="https://github.com/user-attachments/assets/333b228d-7a92-4a08-a071-b78de544b838" />
 <img width="99" height="56" alt="ezgif-86cfe345869a18" src="https://github.com/user-attachments/assets/406b3f86-5117-40fc-80c0-97e33d9bc608" />
+![ezgif-7a172c1309536e](https://github.com/user-attachments/assets/a4ef02f9-8f06-4972-b074-ed8243da0670)
 
 
 
 
-
-
-
-
-interests^

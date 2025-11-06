@@ -8,7 +8,10 @@
   <img width="300" height="400" src="https://github.com/user-attachments/assets/4e86815e-f3c6-4084-8e66-5957e5572ecc">
 </p>
 
-<img align="left" width="110" height="110" src="https://github.com/user-attachments/assets/de440591-b4b7-45a8-934a-1d7f5762ca61"><p align="center"><img width="110" height="110" src="https://github.com/user-attachments/assets/61e37958-2151-4d10-a256-7c09dce543e4"></p><img align="right" width="110" height="110" src="https://github.com/user-attachments/assets/82aeed04-c098-4bbc-9f16-92d8e7b11ec9">
+
+![ezgif com-crop 12](https://github.com/user-attachments/assets/957c97cd-3643-46f4-89a3-b324f0063d76) [atabook](https://raoulsmoocher.atabook.org) ![ezgif com-crop 11](https://github.com/user-attachments/assets/6170eddf-207e-4c26-84b9-8de3dc19cc4f)  [rentry](https://rentry.co/raoulsmoocher) ![ezgif com-crop 10](https://github.com/user-attachments/assets/9c2b49df-9d42-4745-8427-4bfbe495f526)
+
+
 
 
 
